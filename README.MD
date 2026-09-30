@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on north<br>⚡ Fun fact i am a retard
+🔭 I’m currently studying Physics Electronics<br>⚡ Fun fact i love building and creating projects
 
 
 ## 🌐 Socials:
